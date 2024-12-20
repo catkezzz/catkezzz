@@ -1,5 +1,4 @@
-## Hi there 👋
-### My name is Catherine Kezia Wijaya
+## Hi there 👋, I'm Kezia
 
 ### About me
 
